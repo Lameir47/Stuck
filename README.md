@@ -1,0 +1,2 @@
+# Stuck
+Sh_Parado
